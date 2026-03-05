@@ -1,0 +1,1 @@
+# gynekologie-skuta-capka-cz
